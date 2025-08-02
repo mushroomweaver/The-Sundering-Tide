@@ -1,0 +1,2 @@
+The world of this campaign had, for many centuries, been like most. There was vast lands that carried many different environments, including grassy plains, gargantuan jungles, frigid wastes, or arid deserts. This time in history is called The Eorþern Era. The world was named Eard. The reason that the world is not currently named that is multifaceted. Specifically, two facets. Not only is the name extremely old language, there is now significantly less land and a lot more water.(See [[The Great Flood]])
+W.I.P
